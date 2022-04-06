@@ -7,7 +7,6 @@ Tax incentives, rent sharing and income inequality within companies
 **Participants**
 
 - QUZIHAN WU
-- SUNCHUANGYU HUANG
 
 ## Main Project
 
